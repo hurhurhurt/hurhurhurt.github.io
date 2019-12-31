@@ -1,1 +1,1 @@
-# thomashur.github.io
+Website located at https://hurhurhurt.github.io/.
